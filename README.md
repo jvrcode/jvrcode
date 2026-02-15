@@ -39,7 +39,8 @@ I believe in using technology to solve real business problems—not just buildin
 **Tools:** Git, Railway (cloud deployment), MAMP  
 **Focus Areas:** Data analysis, operational analytics, web dashboards, automation
 
-**Currently Learning:** Advanced Python for data analysis, French (for business/travel)
+**Currently Learning:** Advanced Python for data analysis (for business/travel)
+**Lenguages: English, Spanish, French, Italian
 
 ---
 
