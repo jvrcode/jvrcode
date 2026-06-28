@@ -2,7 +2,7 @@
 
 **Manufacturing Operations Leader | Self-Taught Developer | Building Systems That Drive Results**
 
-📍 Atlanta, GA | 🌐 [Blog](your-blog-url) | 💼 Open to Remote Opportunities
+📍 Piedmont Triad, NC | 🌐 [Blog](https://wp.jvrcode.com) | 💼 Open to Remote Opportunities
 
 ---
 
